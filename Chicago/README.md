@@ -29,7 +29,7 @@ Chicago is known for Deep-Dish pizza, loaded hotdogs and Italian Beef. I posit t
 #### **Doughnuts** A new-ish player on the scene, but other cities just don't do them as well. Lots of places have started to spring up, but the ones that set themselves ahead of the curve are the ones that do simple well. There's a lot of gimmicky doughnuts out there, don't fall for it. For most of these places, you have to get there early to have the best selection.
 
 
-- <ins>The Doughnut Vault</ins>: Tied for 1st place as far as "best" Small place downtown that has incredible simple doughnuts. The chestnut sounds out of left field but is top-notch. More likely to sell out earlier in the day and will close based on whenever they do, so go there early in the morning if possible.
+- <ins>The Doughnut Vault</ins>: Tied for 1st place as far as "best" .Small place downtown that has incredible simple doughnuts. The chestnut flavor sounds out of left field but is top-notch. More likely to sell out earlier in the day and will close based on whenever they do, so go there early in the morning if possible.
 - <ins>Do-Rite Doughnuts and Chicken</ins>: Also tied for 1st place for "best". A bigger doughnut so you can't have as many (up to you...), but still top notch. Their chicken is also very good, they have good lunch sandwiches. Get both for a well-rounded meal, and find a place for a nap after. They have many locations throughout the city, all serve the same quality stuff. They are stocked all day, but lose variety the later it gets. 
 - <ins>Firecakes</ins>: Another good downtown spot, stays open pretty late with good variety
 - <ins>_Avoid_: Stan's</ins>: Imported California trash. The glitter of doughnuts - all showy flavors, terrible quality. I literally get sick after having one. New locations popping up like fungus. 
@@ -38,36 +38,38 @@ Chicago is known for Deep-Dish pizza, loaded hotdogs and Italian Beef. I posit t
 
 - <ins>Au Cheval</ins>: Often rated as one of the best burgers in the country. Simple burger with an egg on it with great quality. Be warned - they don't take reservations, and wait times can be 2+ hours at prime time. Get there right when they open (5ish?) or  it's downtown adjacent - so a tip is to go put your name in, then grab a cocktail/drinks at a nearby bar that are plentiful near its only location. 
 - <ins>Small Cheval</ins>: A fast-casual version of the primetime location. They only serve 3 things on the menu, and they're all good. Somewhat pricey for fast-casual, but worth it!
-- <ins>Kuma's</ins>: A death-metal themed bar with creative, gigantic burgers. It used to be THE best, but since it expanded it has dropped a bit in quality. Still good and noteworthy, and a fun experience, if you're in to the "alt" scene: the music will be loud, and campy horror movies are often playing on TV's throughout the bar. Don't sleep on the mac and cheese.
+- <ins>Kuma's</ins>: A death-metal themed bar with creative, gigantic burgers. It used to be THE best, but since it expanded it has dropped a bit in quality. Still good and noteworthy, and a fun experience, if you're in to the "alt" scene. The music will be loud, and campy horror movies are often playing on TV's throughout the bar. Don't sleep on the mac and cheese.
 - <ins>The Loyalist</ins>: a fancy restaurant that serves tons of other pricey stuff, but their burger is all I care about - I have no idea if the other food is good or not...
 
 ### Other Great Spots
 
-#### Downtown
+#### Downtown/River North
 
 - <ins>Ramen-San</ins>: quality Ramen spot with a fun vibe
 - <ins>Quartino Restaurant</ins>: reasonably priced, unassuming Italian food with unexpectedly fantastic quality.
 - <ins>Ema</ins>: Creative and tasty mediterranean small-plates. They had a lunch hot-bar back in the day that was also fantastic, not sure if it is running post-COVID...
+- <ins>Miller's Pub</ins>: classic Chicago art-deco dinner spot in the heart of the loop. Has a large menu with traditional American pub fare, nothing fancy, but fun. 
 
 
-#### Others
+### Other Great Eats
 
-- <ins>Wasabi</ins>: The best Ramen I've ever had, located in Logan Square. They have other similar but different locations in River West and Lincoln Square now. 
+- <ins>Wasabi</ins>: The best Ramen I've ever had, located in Logan Square. They have other similar but different locations in River West and Lincoln Square now. The pork buns and brussel sprouts are also killer appetizer options.
 - <ins>Cho Sun Ok</ins> - incredible Korean BBQ in Lincoln Square. Small place, you may wait in a line for 20-45 min, outside (Winter beware). It's always slammed, and the servers aren't there to coddle you - so don't be put off if they aren't buddy-buddy.
+- <ins>Virtue</ins> - upscale soul food in Hyde Park. All creative but tasty comfort food, and ends up just being a fun meal, especially if your group is in to sharing items. 
 
 ## Drinks
 
-#### Downtown
+#### Downtown/River North
 
 - <ins>Arbella</ins>: Creative, theatrically-smoky cocktails. Fun spot, tasty drinks. Food is serviceable but forgettable. It can be a bit loud in certain parts, sit in the back for a more conversation-friendly vibe.
-- <ins>Three Dots and a Dash</ins>: Mildly-famous tiki bar. I've never been but have heard great things.
+- <ins>Three Dots and a Dash</ins>: Chicago-famous tiki bar. I've never been but have heard great things.
 - <ins>Cindy's Rooftop</ins>: Amazing views and pricey but decent cocktails. I've heard the food is really good, but you need a reservation far in advance. Bar is walk-up though.
 - <ins>Chicago Athletic Club</ins> - Same building as Cindy's but slightly less fancy. Cozy vibe with a fun "game room" (Bacci, darts, pool, etc) area in the back that can be hoppin at happy hours or weekends. 
 
 #### River West/Fulton Market
 
-- <ins>The Aviary</ins>: a cocktail version of the fanciest restaurnt in town. Pretty good - not the absolute best IMO.
-- <ins>Booze Box/Sushi Dokku</ins>: Speakesy entrance in an alley. Very good drinks and very good sushi. You need a reservation but if you don't mind sitting at the bar something usually opens up quickly
+- <ins>The Aviary</ins>: a cocktail version of the only 3 Michelin Star Restaurnt in town. Interesting mixes with an emphasis on presentation. Need a reservation, can probably do 1 week out for non-primetime days, longer for weekends. Pricey, individual cocktails are $25-40ish, or they have a 3-drink prix-fixe for $75.
+- <ins>Booze Box/Sushi Dokku</ins>: Speakesy entrance in an alley, but the restaurant has a regular street-entrance. Very good drinks and very good sushi. You need a reservation but if you don't mind sitting at the bar something usually opens up quickly.
 
 
 #### Others
