@@ -9,7 +9,7 @@ Chicago is known for Deep-Dish pizza, loaded hotdogs and Italian Beef. I posit t
 
 #### **Deep-Dish**
 
-Truly a "pizza pie". If done right, it takes about 30-45 min to make from time of order. If you like spicy things, getting spicy giardinera (crunchy pickled veggies) as a topping is a lifehack. Here's a few of my favorites
+Truly a "pizza pie". If done right, it takes about 30-45 min to make from time of order. If you like spicy things, getting spicy giardinera (crunchy pickled veggies) as a topping is a lifehack. Here's a few of my favorites, ranked in order of preference. 
 
 - <ins>Peaquod's</ins>: Their specialty is that they carmelize the crust. I think their ingredients are also very fresh and make a difference. It's near Lincoln Park, about a 20 minute drive from downtown.
 - <ins>Art of Pizza</ins>: Hole in the wall joint with several locations that has great "by the slice" options, no waiting here.
@@ -56,7 +56,14 @@ Also a less-known player on the Chicago food scene, but this city does them _ver
 - <ins>Ramen-San</ins>: quality Ramen spot with a fun vibe
 - <ins>Quartino Restaurant</ins>: reasonably priced, unassuming Italian food with unexpectedly fantastic quality.
 - <ins>Ema</ins>: Creative and tasty mediterranean small-plates. They had a lunch hot-bar back in the day that was also fantastic, not sure if it is running post-COVID...
-- <ins>Miller's Pub</ins>: classic Chicago art-deco dinner spot in the heart of the loop that has been around forever. Has a large menu with traditional American pub fare, nothing fancy, but fun. 
+- <ins>Miller's Pub</ins>: classic Chicago art-deco dinner spot in the heart of the loop that has been around forever. Has a large menu with traditional American pub fare, nothing fancy, but fun.
+
+#### River West/Fulton Market 
+
+Hip/trendy and downtown adjacent neigborhood. Defiitely head over here to escape the "tourist central" vibe of downtown if you're pressed for time. 
+
+- <ins>Ramen Takeya</ins> : Same owners as Ramen Wasabi. Wasabi is still the best, but this gives it a run for its money. Don't skip the pork bao's and the brussel sprouts
+- <ins>Green Street Smoked Meats</ins> : Best BBQ I've had outside of Texas. You order at a counter and the bar inside is a cool hangout spot.
 
 #### Not-downtown
 
@@ -65,16 +72,16 @@ Also a less-known player on the Chicago food scene, but this city does them _ver
 - <ins>Virtue</ins>: Upscale soul food in Hyde Park. All creative but tasty comfort food, and ends up just being a fun meal, especially if your group is in to sharing items. 
 - <ins>Spacca Napoli</ins>: Very good neopolitan style thin crust pizza in Ravenswood. 
 - <ins>Flying Saucer</ins>: A creative brunch spot in Logan Square/Humboldt Park. Vegan/Veggie friendly. They have a creative menu, but also have plenty of breakfast classics. Their specialty is their breakfast bowls which range from healthy-ish to heart clogging. You may have to wait 20-40 min on the weekend and it's small, so that wait may be outside.
-- <ins>Lula Cafe</ins>: Slightly upscale brunch spot in Logan Square. I have a personal fondness for this place, but can say the food is always very tasty, whether its their creative dishes or the staples. It's bigger and the inside is gorgeous. Again a wait is likely on a weekend, but that wait will be inside if you'd like. A bonus is they'll serve you coffee while you wait (or at least they used to). The area it's in is fun to stroll around if the wait is long. 
+- <ins>Lula Cafe</ins>: Slightly upscale brunch spot in Logan Square. Stephanie and I have a personal fondness for this place, but can say the food is always very tasty, whether its their creative dishes or the staples. It's bigger and the inside is gorgeous. Again a wait is likely on a weekend, but that wait will be inside if you'd like. A bonus is they'll serve you coffee while you wait (or at least they used to). The area it's in is fun to stroll around if the wait is long. 
 
 ## Drinks
 
 #### Downtown/River North
 
-- <ins>Arbella</ins>: Creative, theatrically-smoky cocktails. Fun spot, tasty drinks. Food is serviceable but forgettable. It can be a bit loud in certain parts, sit in the back for a more conversation-friendly vibe.
-- <ins>Three Dots and a Dash</ins>: Chicago-famous tiki bar. I've never been but have heard great things.
+- <ins>Three Dots and a Dash</ins>: Chicago-famous tiki bar. Make a reservation ahead of time or go early (earlier than 5pm) to get a seat at the bar.
 - <ins>Cindy's Rooftop</ins>: Amazing views and pricey but decent cocktails. I've heard the food is really good, but you need a reservation far in advance. Bar is walk-up though.
 - <ins>Chicago Athletic Club</ins> - Same building as Cindy's but slightly less fancy. Cozy vibe with a fun "game room" (Bacci, darts, pool, etc) area in the back that can be hoppin at happy hours or weekends. 
+- <ins>Cherry Circle Room</ins> - Madmen-esque era speakeasy lounge in the back of the Chicago Athletic Club. Known for their various Old Fashioned's. A bit pricey but also serves great food. Can get a slightly pricey burger and some apps, or really go for it with $$$ steaks. 
 
 #### River West/Fulton Market
 
